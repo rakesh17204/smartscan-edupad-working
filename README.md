@@ -1,0 +1,1 @@
+# smartscan-edupad-working
